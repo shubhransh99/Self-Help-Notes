@@ -4,7 +4,7 @@
 + Shri Radha k ashirwad se Bhagwan k dwara gaya gaya Geet
 + Bhagwad Gita is both Shruti and Smriti
 + 18:65 and 18:66 are the keys to bhagwad dita treasure
-+ > ### Shrimad Bhagwad Gita is the essence of all the hindu Shastras
++ ### Shrimad Bhagwad Gita is the essence of all the hindu Shastras
 
 ## Overview of Bhagwad Gita
 + Chapter 1: Intro(Setting the scene)
