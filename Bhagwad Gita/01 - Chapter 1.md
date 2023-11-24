@@ -3,7 +3,7 @@
 ## Learnings
 + Be impartial
 + Have capacity to listen attentively
-+ attachment to mundane knowledge and relatives is toxic - Keep spirituality 
++ attachment to mundane knowledge and attachment to mundane relatives is toxic - Thus Keep spirituality 
 + Always obey Gods will.
 
 
