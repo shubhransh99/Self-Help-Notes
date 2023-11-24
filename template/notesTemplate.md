@@ -11,5 +11,8 @@
   - "Excuses are the nails used to build a house of failure."
   - Anecdote: Successful individuals credit their achievements to responsibility, not excuses.
 
+## Action Exercises:
+Take out a pen right now and write down your answers to the questions below.
+
 
   ## all above are just temporary notes based to give you example how to use markdown(.md) files as notes

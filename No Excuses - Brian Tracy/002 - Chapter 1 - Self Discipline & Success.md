@@ -29,24 +29,25 @@
 Take out a pen right now and write down your answers to the questions below.
 
 1. If your work life and career were ideal, what would they look like? What one discipline could you develop that would help you to achieve it?
-- If my work life and career were ideal, I would be working in a great tech company as a senior dev, solving challenges everyday and having a flexible work environment, working on latest technologies. Working on a macbook.
-- One discipline that I wish I had is the tendency to regularly learn and complete my roadmap I made 2 years ago to reach the entry level of the developer i want to become
+  - If my work life and career were ideal, I would be working in a great tech company as a senior dev, solving challenges everyday and having a flexible work environment, working on latest technologies. Working on a macbook.
+  - One discipline that I wish I had is the tendency to regularly learn and complete my roadmap I made 2 years ago to reach the entry level of the developer i want to become
 
 2. If your family life were ideal, what would it look like, and what one discipline would help you the most to make it a reality?
-- My family life would be ideal if i just be present in present if i stop spacing out most of the time i am not present conciously and always daydreaming not communicating with my family i have cut ties with most i never text or call first.
+  - My family life would be ideal if i just be present in present if i stop spacing out most of the time i am not present conciously and always daydreaming not communicating with my family i have cut ties with most i never text or call first.
 
 3. If your health were perfect in every way, what disciplines would you have that make it possible?
-- If my health was perfect for that I literally need to workout regularl. I lack physical activity & I need to exercise regularly and need to eat healthy and stop overeating junk food unnecessarily to get into shape . 
-- Basically eat healthy and exercise regularly
+  - If my health was perfect for that I literally need to workout regularl. I lack physical activity & I need to exercise regularly and need to eat healthy and stop overeating junk food unnecessarily to get into shape . 
+  - Basically eat healthy and exercise regularly
+
 4. If your financial situation were ideal today, what one discipline would you have that would help you the most?
--  Stop using credit card too much
+  -  Stop using credit card too much
 
 5. Why aren’t you already as successful as you would like to be, and what one discipline would help you the most to achieve all your goals?
-- I am not as successful as I like to be cause I never kept doing anything persistently and continously  to reach there.
-- I need self discipline to stop quiting and settling for easy early wins and then stop doing things that got me there.
+  - I am not as successful as I like to be cause I never kept doing anything persistently and continously  to reach there.
+  - I need self discipline to stop quiting and settling for easy early wins and then stop doing things that got me there.
 
 6. What one skill could you develop that would help you to realize more of your goals?
-- Skill to control my urges and master myself to take necessary actions, weather I like them or not.
+  - Skill to control my urges and master myself to take necessary actions, weather I like them or not.
 
 7. If you could wave a magic wand and be completely disciplined in one area, which one discipline would have the greatest positive impact on your life?
-- Persistence
+  - Persistence
