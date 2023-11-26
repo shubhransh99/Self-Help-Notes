@@ -2,7 +2,7 @@
 - **Key Concepts:**
   - Your ability and willingness to discipline yourself to accept personal responsibility for your life are essential to happiness, health, success, achievement, and personal leadership
   - No one else can is going to do it for you 
-  - the elimination of negative emotions is your great business in life if you
+  - the elimination of negative emotions is your great business in life 
   - It takes tremendous self-discipline for you to accept complete responsibility for everything you are, everything you become, and everything that happens to you truly wish to be happy.
   - 80 percent of the population never accepts complete responsibility for their lives
   - after the person accepts responsibility, everything is possible.
