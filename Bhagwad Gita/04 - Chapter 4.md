@@ -1,4 +1,4 @@
-# Chapter 3 (Buddhi Yog)
+# Chapter 4 (Gyan Yog)
 
 ## Learnings
 - God is the topmost well wisher
