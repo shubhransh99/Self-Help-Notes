@@ -1,4 +1,4 @@
-# Chapter 6 (BhagwadGyan)
+# Chapter 6 (Dhyan Yoga)
 
 ## Learnings
 - One who keep serving duties and only dont expect the fruits of his actions is real yogi
