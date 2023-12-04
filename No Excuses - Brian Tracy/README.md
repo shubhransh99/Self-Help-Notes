@@ -9,3 +9,4 @@ This is there to make sure that I dont have problem finding where I left the aud
 - Chapter 6: 2:29.26
 - Chapter 7: 2:47:45
 - Chapter 8: 2.57.56
+- Chapter 9: 3:231:17
